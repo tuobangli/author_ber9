@@ -1,2 +1,2 @@
 # author_ber9
-invite Cohen as a coauthor of MD (after confirmation of berkeley
+explain to Cohen that I will not seek to write that paper about Taylor's law
