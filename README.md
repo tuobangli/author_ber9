@@ -1,2 +1,2 @@
 # author_ber9
-Berkeley Chemistry Visiting Student Program
+Berkeley Program in Startup Management
