@@ -1,4 +1,2 @@
 # author_ber9
-Berkeley Program in Startup Management 
-
-don't apply Berkeley extension
+I already apply Berkeley extension. send email to cancel the application.
