@@ -1,2 +1,2 @@
 # author_ber9
-I already apply Berkeley extension, contact Berkeley extension today.
+I already contact Berkeley extension yesterday, waiting for reply.
