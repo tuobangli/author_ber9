@@ -1,2 +1,2 @@
 # author_ber9
-I already contact Berkeley extension yesterday, because the applications were already submitted, I cannot do anything else, waiting for reply.
+I want Berkeley extension, hope they can give me I-20 this week.
