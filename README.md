@@ -1,3 +1,1 @@
-Visa Grab Villa Scott Condominium
-
-9
+Summer Stay
