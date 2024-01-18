@@ -1,1 +1,1 @@
-send you the termination certificate
+you signed an agreement about not showing the termination certificate?
