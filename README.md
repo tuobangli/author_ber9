@@ -1,1 +1,1 @@
-send a letter today, to FedEx, 
+send you the termination certificate
