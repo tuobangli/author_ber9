@@ -1,1 +1,1 @@
-The address: Guangdong Technion, Technion, Berkeley
+The address: Guangdong Technion
